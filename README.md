@@ -21,8 +21,6 @@ Atualmente, sou estudante no **SENAI**, cursando **Análise e Desenvolvimento de
 * **Aprendizado Contínuo:** Disposição para acompanhar novas tecnologias e linguagens.
 * **Trabalho em Equipe:** Colaboração em projetos e comunicação clara.
 * **Pensamento Crítico e Sistêmico.**
-* **Inglês (nivel A2).** 
-
 ---
 
 ## 🚀 O que busco
